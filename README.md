@@ -1,7 +1,7 @@
-- 👋 Hi, I’m @quanbh1911
-- 👀 I’m interested in developer
-- 🌱 I’m currently working in vnpt 
-- 💞️ I’m looking to part time work
+- 👋 Hi, I’m quanbh1911
+- 👀 I’m interested in developer, film, novel, music ...
+- 🌱 I’m currently working in vnpt.
+- 💞️ I’m looking to part time job or remote job.
 - 📫 How to reach me: 
 <br/> quanbh.developer@gmail.com
 <br/> http://inovationthinking.blogspot.com
