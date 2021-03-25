@@ -1,5 +1,5 @@
 - 👋 Hi, I’m quanbh1911
-- 👀 I’m interested in developer, film, novel, music ...
+- 👀 I’m interested in IT, film, novel, music ...
 - 🌱 I’m currently working in vnpt.
 - 💞️ I’m looking to part time job or remote job.
 - 📫 How to reach me: 
